@@ -1,1 +1,1 @@
-this is my submission for week_1 challange
+my submision for week 1
